@@ -1,1 +1,1 @@
-A frind indeed
+A friend indeed
